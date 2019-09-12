@@ -1,2 +1,3 @@
 # YCC
 It's my life !
+Nothing lasts forever...
